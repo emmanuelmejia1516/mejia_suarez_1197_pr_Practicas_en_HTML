@@ -10,7 +10,7 @@
 # Ejercicio 3
 ![image](https://github.com/user-attachments/assets/33593801-d5e2-4dd9-b960-56841b50b005)
 # resultado:
-
+![image](https://github.com/user-attachments/assets/362f9836-77d7-4bee-92bc-11aa18be4bf3)
 # Ejercicio 4
 # resultado:
 # Ejercicio 5
